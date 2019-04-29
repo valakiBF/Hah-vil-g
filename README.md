@@ -1,2 +1,2 @@
-# Hah-vil-g
+# Hahó, világ
 próba (in Hungarian)
